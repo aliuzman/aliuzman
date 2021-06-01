@@ -1,4 +1,4 @@
-- 👋 Hi, I’m ........................@aliuzman
+- 👋 Hi, I’m .............................@aliuzman
 - 👀 I’m interested in ...............everything
 - 🌱 I’m currently learning ..........is
 - 💞️ I’m looking to collaborate on ...possible
