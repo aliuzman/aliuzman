@@ -1,5 +1,5 @@
-- 👋 Hi, I’m ......................................@aliuzman
-- 👀 I’m interested in .........................everything
+- 👋 Hi, I’m ...............................................@aliuzman
+- 👀 I’m interested in ...........................everything
 - 🌱 I’m currently learning ..................is
 - 💞️ I’m looking to collaborate on ............possible
 - 📫 How to reach me ....................................aokavak@gmail.com
